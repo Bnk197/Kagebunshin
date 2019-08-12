@@ -1,0 +1,2 @@
+# Kagebunshin
+Shadow Clone Jitsu
